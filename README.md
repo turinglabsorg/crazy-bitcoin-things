@@ -1,5 +1,4 @@
-# Crazy things to do
-## With Bitcoin and other crypto
+# Crazy things to do with Bitcoin and other crypto
 
 I will update this list everytime something crazy will came!
 
